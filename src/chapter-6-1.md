@@ -1,4 +1,4 @@
-Chapter 6: Active vs Passive Investing: Comparing Active and Passive Investing Strategies
+Comparing Active and Passive Investing Strategies
 =========================================================================================
 
 In this chapter, we will compare active and passive investing strategies to help investors make an informed decision about which approach is best for them.

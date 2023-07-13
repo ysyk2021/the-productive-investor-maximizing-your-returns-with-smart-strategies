@@ -1,4 +1,4 @@
-Chapter 4: Diversification and Risk Management: Techniques for Diversifying Investments
+Techniques for Diversifying Investments
 =======================================================================================
 
 In this chapter, we will explore techniques for diversifying investments to help investors build a strong and resilient portfolio that can weather market volatility and maximize returns.

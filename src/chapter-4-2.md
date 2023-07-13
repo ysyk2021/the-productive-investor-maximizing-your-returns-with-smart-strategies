@@ -1,4 +1,4 @@
-Chapter 4: Diversification and Risk Management: Tips for Managing Risk and Minimizing Losses
+Tips for Managing Risk and Minimizing Losses
 ============================================================================================
 
 In this chapter, we will explore the importance of diversification and risk management in investment strategies and provide tips for managing risk and minimizing losses.

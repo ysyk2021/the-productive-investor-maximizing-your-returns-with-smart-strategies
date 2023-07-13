@@ -1,7 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
-- [Chapter 1: Introduction](chapter-1.md)
+- [Chapter 1: Introduction](README.md)
   - [Defining productivity in investing](chapter-1-1.md)
   - [Overview of how productive investing can lead to increased returns](chapter-1-2.md)
 - [Chapter 2: Understanding the Investment Landscape](chapter-2.md)
@@ -28,8 +27,4 @@
 - [Chapter 9: Maintaining a Productive Investing Practice](chapter-9.md)
   - [Strategies for maintaining a productive investing practice over time](chapter-9-1.md)
   - [Avoiding burnout and staying motivated](chapter-9-2.md)
-- [Chapter 10: Conclusion](chapter-10.md)
-  - [Recap of the benefits of a productive investing mindset](chapter-10-1.md)
-  - [Encouragement to adopt productive investing practices for increased returns](chapter-10-2.md)
 - [Conclusion](conclusion.md)
-- [Contacts](contacts.md)

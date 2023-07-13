@@ -1,4 +1,4 @@
-Chapter 7: Incorporating Technology into Investing: Exploring the Benefits of Robo-advisors and Online Trading Platforms
+Exploring the Benefits of Robo-advisors and Online Trading Platforms
 ========================================================================================================================
 
 Technology has transformed the way we invest, making it more accessible, convenient, and efficient. In this chapter, we will explore the benefits of robo-advisors and online trading platforms and how they can enhance an investor's overall investment strategy.

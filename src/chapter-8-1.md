@@ -1,4 +1,4 @@
-Chapter 8: Navigating Challenges and Obstacles: Overcoming Common Obstacles to Productive Investing
+Overcoming Common Obstacles to Productive Investing
 ===================================================================================================
 
 Investing can be challenging, and there are many obstacles that can hinder an investor's progress towards achieving their financial goals. In this chapter, we will explore common obstacles to productive investing and provide strategies for overcoming them.

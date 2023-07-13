@@ -1,4 +1,4 @@
-Chapter 10: Conclusion: Recap of the Benefits of a Productive Investing Mindset
+Recap of the Benefits of a Productive Investing Mindset
 ===============================================================================
 
 In this book, we have explored various strategies and mindsets for productive investing. As we conclude, let us recap the benefits of adopting a productive investing mindset.

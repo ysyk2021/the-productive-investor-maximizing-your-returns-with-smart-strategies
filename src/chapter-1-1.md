@@ -1,4 +1,4 @@
-Chapter 1: Introduction: Defining Productivity in Investing
+Defining Productivity in Investing
 ===========================================================
 
 Investing can be a daunting task, especially when it comes to maximizing returns while minimizing risks. However, there are principles of productive investing that can help investors achieve their financial goals.

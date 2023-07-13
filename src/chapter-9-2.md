@@ -1,4 +1,4 @@
-Chapter 9: Maintaining a Productive Investing Practice: Avoiding Burnout and Staying Motivated
+Avoiding Burnout and Staying Motivated
 ==============================================================================================
 
 Maintaining a productive investing practice can be challenging, and it's important to avoid burnout and stay motivated. In this chapter, we will explore strategies for avoiding burnout and staying motivated while pursuing long-term financial goals.

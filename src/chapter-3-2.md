@@ -1,4 +1,4 @@
-Chapter 3: Developing a Productive Investing Mindset: Strategies for Setting and Achieving Investment Goals
+Strategies for Setting and Achieving Investment Goals
 ===========================================================================================================
 
 In this chapter, we will explore strategies for developing a productive investing mindset that can help you set and achieve your investment goals.

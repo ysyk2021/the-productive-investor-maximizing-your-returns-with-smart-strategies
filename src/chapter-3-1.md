@@ -1,4 +1,4 @@
-Chapter 3: Developing a Productive Investing Mindset: Cultivating a Positive Attitude and Growth Mindset Towards Investing
+Cultivating a Positive Attitude and Growth Mindset Towards Investing
 ==========================================================================================================================
 
 In this chapter, we will explore the importance of cultivating a positive attitude and growth mindset towards investing. A productive investing mindset can help investors overcome challenges, stay focused on their investment goals, and achieve long-term financial success.
