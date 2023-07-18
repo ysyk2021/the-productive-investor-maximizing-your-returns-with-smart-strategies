@@ -12,7 +12,6 @@ Whether you are new to investing or a seasoned investor, this book offers valuab
 
 So, join us on this journey towards becoming a productive investor. Let's learn together how to maximize our returns with smart strategies and achieve our financial goals.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
