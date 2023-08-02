@@ -1,4 +1,4 @@
-Chapter: Cultivating a Positive Attitude and Growth Mindset towards Investing
+Cultivating a Positive Attitude and Growth Mindset towards Investing
 =============================================================================
 
 Investing is not only a financial endeavor; it is also a mindset. Cultivating a positive attitude and a growth mindset towards investing can significantly impact one's success in the financial markets. In this chapter, we will explore the importance of having a positive mindset, overcoming challenges, and embracing continuous learning to excel as a productive investor.

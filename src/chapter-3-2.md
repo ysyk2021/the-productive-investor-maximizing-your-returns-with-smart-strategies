@@ -1,4 +1,4 @@
-Chapter: Strategies for Setting and Achieving Investment Goals
+Strategies for Setting and Achieving Investment Goals
 ==============================================================
 
 Setting and achieving investment goals is essential for long-term financial success. In this chapter, we will explore effective strategies that can help investors set meaningful investment goals and develop actionable plans to achieve them.

@@ -1,4 +1,4 @@
-Chapter 10: Conclusion: Encouragement to Adopt Productive Investing Practices for Increased Returns
+Conclusion: Encouragement to Adopt Productive Investing Practices for Increased Returns
 ---------------------------------------------------------------------------------------------------
 
 In this book, we have explored a wide range of strategies and techniques for maximizing investment returns and achieving financial success. From developing a clear investment strategy to diversifying your portfolio and managing risk, "The Productive Investor" provides practical insights and tools for becoming a more productive investor.

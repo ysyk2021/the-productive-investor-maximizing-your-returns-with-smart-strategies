@@ -1,4 +1,4 @@
-Chapter: Avoiding Burnout and Staying Motivated
+Avoiding Burnout and Staying Motivated
 ===============================================
 
 Investing can be a demanding and challenging endeavor that requires discipline, patience, and continuous effort. It's essential for productive investors to prioritize their well-being, avoid burnout, and maintain motivation throughout their investment journey. In this chapter, we will explore strategies to prevent burnout, stay motivated, and achieve long-term success.
