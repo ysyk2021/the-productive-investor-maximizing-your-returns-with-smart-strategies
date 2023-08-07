@@ -30,4 +30,3 @@ Adopting a productive investing mindset can also contribute to personal growth b
 
 In conclusion, adopting a productive investing mindset can provide numerous benefits, including consistent returns, reduced risk, greater control, improved financial well-being, and personal growth. By incorporating the strategies and mindsets discussed in this book into your investing approach, you can maximize your returns and achieve your financial goals.
 
-

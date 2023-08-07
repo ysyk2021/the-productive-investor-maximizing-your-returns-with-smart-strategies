@@ -48,5 +48,3 @@ Deciding between active and passive investing depends on an investor's goals, ri
 * Performance expectations: Investors seeking potentially higher returns may lean towards active strategies, while those comfortable with market returns may opt for passive index investing.
 
 Ultimately, the choice between active and passive investing should align with an investor's financial objectives, risk tolerance, and investment horizon.
-
-In the next chapter, we will explore various investment vehicles and how they can complement both active and passive investing strategies.
