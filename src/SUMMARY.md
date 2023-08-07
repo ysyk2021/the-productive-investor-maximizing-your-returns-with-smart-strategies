@@ -28,3 +28,4 @@
   - [Strategies for maintaining a productive investing practice over time](chapter-9-1.md)
   - [Avoiding burnout and staying motivated](chapter-9-2.md)
 - [Conclusion](conclusion.md)
+- [Contacts](contacts.md)
