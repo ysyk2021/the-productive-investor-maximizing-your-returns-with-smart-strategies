@@ -1,4 +1,3 @@
-# Chapter 9: Maintaining a Productive Investing Practice
 
 In this chapter, we will explore strategies for maintaining a productive investing practice over time and avoiding burnout.
 

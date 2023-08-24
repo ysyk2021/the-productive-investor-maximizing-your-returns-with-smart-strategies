@@ -1,5 +1,3 @@
-Defining Productivity in Investing
-===========================================
 
 When it comes to investing, productivity goes beyond mere financial returns. It encompasses various aspects that contribute to long-term success and fulfillment. In this chapter, we will explore the multifaceted nature of productivity in investing and how it can be defined and achieved.
 

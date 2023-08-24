@@ -1,4 +1,3 @@
-# Strategies for Maintaining a Productive Investing Practice Over Time
 
 In this chapter, we will explore strategies for maintaining a productive investing practice over time.
 

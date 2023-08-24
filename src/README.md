@@ -1,4 +1,3 @@
-# Introduction
 
 Welcome to "The Productive Investor: Maximizing Your Returns with Smart Strategies" -- a comprehensive guide to achieving financial success through smart investing practices.
 

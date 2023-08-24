@@ -1,5 +1,3 @@
-Chapter 4: Diversification and Risk Management
-==============================================
 
 In this chapter, we will explore the importance of diversification and risk management in investment strategies. We will discuss techniques for diversifying investments and provide tips for managing risk and minimizing losses.
 

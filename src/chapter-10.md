@@ -1,5 +1,3 @@
-Chapter 10: Conclusion
-======================
 
 In this book, we have explored various strategies and mindsets for productive investing. As we conclude, let us recap the benefits of adopting a productive investing mindset and encourage readers to adopt productive investing practices for increased returns.
 

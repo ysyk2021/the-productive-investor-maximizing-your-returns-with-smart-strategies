@@ -1,5 +1,3 @@
-Chapter 7: Incorporating Technology into Investing
-==================================================
 
 In today's digital age, technology has transformed the investment landscape. From robo-advisors to online trading platforms, investors can leverage technology to enhance their investment strategies and potentially maximize their returns.
 

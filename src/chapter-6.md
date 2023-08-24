@@ -1,5 +1,3 @@
-Chapter 6: Active vs Passive Investing
-======================================
 
 In this chapter, we will explore the differences between active and passive investing strategies and how to identify the best approach for individual investment goals and preferences.
 
@@ -34,5 +32,4 @@ Ultimately, personal preferences play a significant role in deciding between act
 By considering these factors and identifying individual investment goals and preferences, investors can make an informed decision between active and passive investing that aligns with their financial goals and lifestyle.
 
 Remember that both active and passive investing strategies have their strengths and weaknesses. The key is to identify the approach that works best for you and your investment goals.
-
 

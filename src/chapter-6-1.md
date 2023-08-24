@@ -1,5 +1,3 @@
-Comparing Active and Passive Investing Strategies
-==========================================================
 
 In this chapter, we will explore the key differences between active and passive investing strategies. Both approaches have their merits, and understanding their characteristics can help investors make informed decisions about maximizing their returns.
 

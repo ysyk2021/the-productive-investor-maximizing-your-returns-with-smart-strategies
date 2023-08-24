@@ -1,5 +1,3 @@
-Chapter 3: Developing a Productive Investing Mindset
-====================================================
 
 In this chapter, we will explore strategies for developing a productive investing mindset that can help you set and achieve your investment goals. By cultivating a positive attitude and growth mindset towards investing, investors can overcome challenges, stay focused on their investment goals, and achieve long-term financial success.
 

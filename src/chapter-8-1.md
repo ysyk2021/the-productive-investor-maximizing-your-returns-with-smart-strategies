@@ -1,5 +1,3 @@
-Overcoming Common Obstacles to Productive Investing
-============================================================
 
 Investing can be a challenging endeavor, and many investors face common obstacles that can hinder their success. In this chapter, we will explore some of these obstacles and provide strategies for overcoming them. By understanding and addressing these challenges, you can become a more productive investor and maximize your returns.
 
