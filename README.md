@@ -1,3 +1,6 @@
+# The Productive Investor: Maximizing Your Returns with Smart Strategies
+
+Book Link: [https://zhengpublishing.com/the-productive-investor-maximizing-your-returns-with-smart-strategies/](https://zhengpublishing.com/the-productive-investor-maximizing-your-returns-with-smart-strategies/)
 
 Welcome to "The Productive Investor: Maximizing Your Returns with Smart Strategies" -- a comprehensive guide to achieving financial success through smart investing practices.
 
